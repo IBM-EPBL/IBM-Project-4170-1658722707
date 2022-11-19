@@ -12,7 +12,7 @@
     
     2. Udhayaarun A         [TM1] - 211519104176
     
-    3. Prithivi Raj         [TM2] - 211519104120
+    3. Prithivi Raj P        [TM2] - 211519104120
     
     4. Mukesh Babu S        [TM3] - 211519104090
 
